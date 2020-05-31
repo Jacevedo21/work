@@ -1,3 +1,3 @@
 # work
-David shall never rest. >:)
-David is a swell young man\gentleman
+we are all hardstuck
+fern is only in plat bc of me :D
